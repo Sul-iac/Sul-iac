@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: 
 
 42 student.<br><br>Learning anything and everything, all of the time. <br><br><br>Currently working on different project about music. <br>Actually digging through the wonderful world of ADC (Analogic-to-Digital Converter)<br>in the biggest project of my life that will be out soon. <br><br>Here, have a look at it!<br>https://www.beurart.com/<br><br>
 
